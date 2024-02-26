@@ -1,0 +1,1 @@
+Este arquivo contém informações sobre a banda "Bon Jovi".
